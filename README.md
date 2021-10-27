@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @iibrahim077
+- 👀 I’m interested in Computer Science, History, Geography and math.
+- 🌱 I’m currently learning Science, History and Math.
+- 📫 How to reach me: iibrahim077 on Instagram.
